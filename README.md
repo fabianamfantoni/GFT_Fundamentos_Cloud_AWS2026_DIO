@@ -1,0 +1,1 @@
+# GFT_Fundamentos_Cloud_AWS2026_DIO
